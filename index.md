@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my home for hopeless anime girls
 
-I'm glad you are here. I plan to talk about ...
+I am a sociopath
